@@ -41,4 +41,8 @@ Natural realistic handheld mirror selfie video, 8–10 seconds long. The woman h
 
 &nbsp;
 
+## 
+
+## 30 day content strategy
+
 ## Monetize using affiliate link
