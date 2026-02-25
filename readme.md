@@ -4,3 +4,4 @@
 - 10% commission
 - AI influencer = faceless content
 - 1 sale/day, $20 commission = $600/month
+- See beauty.md
